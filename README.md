@@ -1,1 +1,1 @@
-# https://theazharmushtaq.com/
+# https://azharmushtaq.de/
